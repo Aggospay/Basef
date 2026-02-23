@@ -9,3 +9,4 @@ Keraguan mencuri waktu, tetapi tindakan menciptakan masa depan
 의심은 시간을 빼앗고, 행동은 미래를 만든다
 Ang pagdududa ay nagnanakaw ng oras, ngunit ang aksyon ay lumilikha ng hinaharap
 疑いは時間を奪い、行動が未来をつくる
+تردید زمان را می‌دزدد، اما عمل آینده را می‌سازد
