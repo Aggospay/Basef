@@ -5,3 +5,4 @@ Basef
 Ang pinakamagandang oras para magsimula ay palaging ngayon
 始める最高の瞬間はいつも今です
 Keraguan mencuri waktu, tetapi tindakan menciptakan masa depan
+Ìyemeji ń jí àkókò, ṣùgbọ́n ìṣe ló ń dá ìjọ̀sìn ọjọ́ iwájú
