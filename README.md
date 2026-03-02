@@ -12,3 +12,4 @@ Ang pagdududa ay nagnanakaw ng oras, ngunit ang aksyon ay lumilikha ng hinaharap
 تردید زمان را می‌دزدد، اما عمل آینده را می‌سازد
 매일은 어제보다 더 강해질 수 있는 기회입니다
 333
+66556
